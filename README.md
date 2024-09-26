@@ -1,1 +1,1 @@
-# bunyi_dan_simbol-simbol_pancasila
+# bunyi_dan_simbol-sila-sila_pancasila
